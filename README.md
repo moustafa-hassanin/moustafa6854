@@ -46,9 +46,11 @@ I'm interested in the broader role of computational thinking in medicine and in 
 
 ---
 
+
 ### CONNECT
 
-[LinkedIn](https://www.linkedin.com/in/moustafa-omar-44389026a/) · [GitHub](https://github.com/moustafa6854)
+[LinkedIn](https://www.linkedin.com/in/moustafa-omar-44389026a/) · [X](https://x.com/moustafaomr3) · [GitHub](https://github.com/moustafa6854)
+
 
 ---
 
